@@ -1,1 +1,0 @@
-# comit-sitio-web-curriculum.github.io
